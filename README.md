@@ -1,0 +1,1 @@
+# Automatizacoes-MascaraStOp
